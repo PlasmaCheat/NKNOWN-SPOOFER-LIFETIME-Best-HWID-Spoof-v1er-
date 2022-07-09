@@ -1,4 +1,7 @@
-*  GOOD (UNDETECTED AND WORKING FINE)
+Buy : https://shoppy.gg/product/xTvC1Oe
+My Shop : https://shoppy.gg/@PlasmaCheat
+
+* GOOD (UNDETECTED AND WORKING FINE)
 *  UPDATING
 *  UNKNOWN (MAYBE WORKS; MAYBE DOES NOT WORK; MAYBE DETECTED)
 *  DETECTED
